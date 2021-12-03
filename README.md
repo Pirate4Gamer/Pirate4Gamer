@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pirate4Gamer
 - 👀 I’m interested in your ass
 - 🌱 I’m currently learning how to go inside your ass
-- 💞️ I’m looking to collaborate on your ass
+- 💞️ I’m looking to collaborate with your ass
 - 📫 How to reach me also in your ass
 
 <!---
